@@ -26,6 +26,8 @@ Do they align with the job description and what we saw in the lecture?
 Yes
 
 
+
+
 **Junior Manager Data & MarTech Online Marketing (m/w/d)**
 
 Skills:
